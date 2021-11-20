@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NajiChiba
+- 👀 I’m interested in Web and Mobile developpement
+- 🌱 I’m currently learning Front end Dev
+- 📫 How to reach me IG: neji.chi
