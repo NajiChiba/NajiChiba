@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @NajiChiba
 - 👀 I’m interested in Web and Mobile developpement
-- 📫 How to reach me IG: neji.chi
+- 📫 How to reach me LinkedIn: Abdenaji Chiba
